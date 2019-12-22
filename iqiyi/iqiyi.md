@@ -5,6 +5,7 @@
 5，Android实战项目开发：http://www.iqiyi.com/a_19rrhyawat.html    
 6，Python开发基础强化案例实战：http://www.iqiyi.com/a_19rrhz8lrt.html    
 
+6.1：JavaWeb图书管理项目实战：http://www.iqiyi.com/a_19rrh3tg2t.htm
 
 7，稳定盈利的交易系统：http://www.iqiyi.com/a_19rrhtnlid.html    
 8，缠论系统学习全套课程：http://www.iqiyi.com/a_19rrhydzsd.html    
