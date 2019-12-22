@@ -2,4 +2,5 @@
 2，数据科学训练营之七：深度学习（中文版）：http://www.iqiyi.com/a_19rrhz2ia5.html    
 3，大数据机器学习实战：http://www.iqiyi.com/a_19rrh2dwpd.html    
 4，JavaWeb学生成绩管理系统：http://www.iqiyi.com/a_19rri0ub49.html    
-5，
+5，Android实战项目开发：http://www.iqiyi.com/a_19rrhyawat.html    
+6，Python开发基础强化案例实战：http://www.iqiyi.com/a_19rrhz8lrt.html    
