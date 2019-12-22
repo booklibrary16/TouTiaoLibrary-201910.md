@@ -4,3 +4,12 @@
 4，JavaWeb学生成绩管理系统：http://www.iqiyi.com/a_19rri0ub49.html    
 5，Android实战项目开发：http://www.iqiyi.com/a_19rrhyawat.html    
 6，Python开发基础强化案例实战：http://www.iqiyi.com/a_19rrhz8lrt.html    
+
+
+7，稳定盈利的交易系统：http://www.iqiyi.com/a_19rrhtnlid.html    
+8，缠论系统学习全套课程：http://www.iqiyi.com/a_19rrhydzsd.html    
+9，种子理论实战操作系统：http://www.iqiyi.com/a_19rrhyc9xx.html    
+10，波浪理论系统精讲及实战：http://www.iqiyi.com/a_19rrhz4t59.html    
+11：股票金K线形态买卖点绝技：http://www.iqiyi.com/a_19rrhs4ujp.html    
+12，缠论中级入门课：http://www.iqiyi.com/a_19rrhxv9ct.html    
+13，股票短线黑马精准线买卖点：：http://www.iqiyi.com/a_19rrhs5v9l.html    
