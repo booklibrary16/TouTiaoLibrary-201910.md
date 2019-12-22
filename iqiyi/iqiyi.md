@@ -13,3 +13,5 @@
 11：股票金K线形态买卖点绝技：http://www.iqiyi.com/a_19rrhs4ujp.html    
 12，缠论中级入门课：http://www.iqiyi.com/a_19rrhxv9ct.html    
 13，股票短线黑马精准线买卖点：：http://www.iqiyi.com/a_19rrhs5v9l.html    
+
+14，项目管理实战指南：http://www.iqiyi.com/a_19rrhy4na9.html
