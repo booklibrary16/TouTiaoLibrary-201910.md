@@ -17,3 +17,4 @@ https://www.zhihu.com/explore
 https://zhuanlan.zhihu.com/puoketrader    
 https://edu.iqiyi.com/      
 https://class.imooc.com    
+https://linux.vbird.org/linux_basic/
