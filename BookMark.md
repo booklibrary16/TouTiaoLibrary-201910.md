@@ -19,3 +19,17 @@ https://edu.iqiyi.com/
 https://class.imooc.com      
 https://linux.vbird.org/linux_basic/    
 https://www.moulem.com/    
+https://www.gitnavi.com   
+
+
+
+
+
+
+
+
+
+
+
+https://www.bilibili.com/video/av17916990/?spm_id_from=333.788.videocard.0     
+
