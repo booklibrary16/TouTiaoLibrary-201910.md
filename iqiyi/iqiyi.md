@@ -16,3 +16,6 @@
 13，股票短线黑马精准线买卖点：：http://www.iqiyi.com/a_19rrhs5v9l.html    
 
 14，项目管理实战指南：http://www.iqiyi.com/a_19rrhy4na9.html
+
+
+mimi:https://www.iqiyi.com/v_19rrcp7mx8.html
