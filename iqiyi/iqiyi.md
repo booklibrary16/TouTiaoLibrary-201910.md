@@ -17,7 +17,8 @@
 
 14，项目管理实战指南：http://www.iqiyi.com/a_19rrhy4na9.html
 
-http://www.iqiyi.com/a_19rrhr8xnh.html     
-mimi:https://www.iqiyi.com/v_19rrcp7mx8.html
+未来简史：http://www.iqiyi.com/a_19rrhr8xnh.html    
+人类大历史：https://www.iqiyi.com/v_19rro842wo.html      
+秘密，吸引力法则:https://www.iqiyi.com/v_19rrcp7mx8.html     
 
 https://www.youtube.com/watch?v=zdtqLNeK6Ww&list=PL0bRbMK-_M0iToNeGaEITAb0pUpTNWFD8
